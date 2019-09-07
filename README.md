@@ -1,3 +1,0 @@
-# LORACLE2019
-LORACLE2019
-just for test
